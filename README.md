@@ -1,1 +1,1 @@
-Anticheat Viceblue par spykeSins, tu dump et utilise mon code, je leak ton anticheat
+spykeSins te baise bien ta mere, ton anti cheat tu l'a dans le cul mdr, tu vole mon travail, je leak ton AntiCheat
